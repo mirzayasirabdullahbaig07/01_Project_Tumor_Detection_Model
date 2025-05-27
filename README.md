@@ -2,7 +2,7 @@
 
 **Author:** Mirza Yasir Abdullah Baig  
 **Email:** yasirabdullah4549@gmail.com  
-**LinkedIn:** [linkedin.com/in/mirzayasirabdullahbaig](https://www.linkedin.com/in/mirza-yasir-abdullah-baig)  
+**LinkedIn:** [linkedin.com/in/mirza-yasir-abdullah-baig](https://www.linkedin.com/in/mirza-yasir-abdullah-baig)  
 **GitHub:** [github.com/mirzayasirabdullahbaig07](https://github.com/mirzayasirabdullahbaig07)
 
 ---
